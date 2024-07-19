@@ -7,24 +7,21 @@
 
 
 
-##Activity update for student induction programme 
 
-|Date | Resource person |Activity done|
+
+
 | ----------- | ----------- |-----------|
 | 11-07-2024 | Dr. Arvind Grewal |. Delievered a very interesting speech about who we are and provided us with the information about college|
 
 
 
-##Activity update of student induction programme
 
-| Date | Resource person|Activity done|
+
+
 | ----------- | ----------- |------------|
 | 12-07-2024 | Ms. Harjot Kaur| Taught us about UHV and after that peer interaction session was happened|
 
 
 
-##Activity update of student induction programme
-
-| Date | Resource person | Activity done|
 | ----------- | ----------- |------------|
 | 15-07-2024 | Dr.Pyare Lal Garg and Mr.Sony Goyal|Gave us information about life living values and taught about the concept of LIFE( learn,Innovate,Future,Explore)|
